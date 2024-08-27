@@ -1,1 +1,1 @@
-Maneesh Reddy Polu
+Divya Teja Gottipati Portfolio
